@@ -3,7 +3,7 @@
 **Private**
 
 - https://www.teruhirok.com/
-- https://social.teruhirokomaki.com/@teruhirokomaki
+- https://social.teruhirok.com/@teruhirok
 
 **Work**
 
